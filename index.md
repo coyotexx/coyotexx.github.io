@@ -1,2 +1,2 @@
 # いい加減にしなさい
-とりあえず怒った
+[@yurumazu](https://twitter.com/yurumazu)
