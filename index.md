@@ -1,2 +1,2 @@
-# いい加減にしなさい
+# 巡回リスト
 [@yurumazu](https://twitter.com/yurumazu)
